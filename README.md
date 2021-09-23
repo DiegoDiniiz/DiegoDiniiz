@@ -1,5 +1,4 @@
 ### Hello
-- 🥇 Hoje Trabalho como Auxiliar de Escritório 
 - 💻 Estudante de Ciências Da Computação 
 - 📬 Contate-me no E-Mail : diegosilvadiniz7@gmail.com
 
