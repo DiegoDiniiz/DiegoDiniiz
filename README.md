@@ -1,5 +1,5 @@
 ### Hello
-- 💻 Estudante de Ciências Da Computação 
+- 💻 Estudante de Ciência Da Computação 
 - 📬 Contate-me no E-Mail : diegosilvadiniz7@gmail.com
 
 <div align="center">
